@@ -1,3 +1,5 @@
-Nama saya adalah
+Nama saya adalah Airlangga Lour
 
-Asal saya dari
+Asal saya dari Jakarta
+
+Tahun Kelahiran 1995
