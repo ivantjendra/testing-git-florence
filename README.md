@@ -1,3 +1,3 @@
-Nama saya adalah
+Nama saya adalah Graf
 
-Asal saya dari
+Asal saya dari Jakarta
