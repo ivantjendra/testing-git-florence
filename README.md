@@ -1,3 +1,3 @@
-Nama saya adalah
+Nama saya adalah Anthony Gunardi Purwadipura
 
-Asal saya dari
+Asal saya dari Malang
