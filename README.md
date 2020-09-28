@@ -1,3 +1,5 @@
-Nama saya adalah
+Nama saya adalah  Taufiq Giri Ichwanusofa
 
-Asal saya dari
+Asal saya dari Yogyakarta
+
+Saya lahir tahun 1992
