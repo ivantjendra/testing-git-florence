@@ -1,3 +1,3 @@
-Nama saya adalah
+Nama saya adalah Mochammad Sidiq Tri Soeharto  
 
-Asal saya dari
+Asal saya dari Tangerang Selatan
